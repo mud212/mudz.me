@@ -1,0 +1,39 @@
+<!DOCTYPE html>
+<html lang="en-US">
+  <head>
+    <meta charset="utf-8">
+    <title>Recipe: {{ page.title }}</title>
+    <style type="text/css">
+      body {
+        background-color: orange;
+        font-family: sans-serif;
+        padding: 0;
+      }
+      div#background {
+        position: fixed;
+        top: 0;
+        left: 0;
+        min-width: 100vw;
+        min-height: 100vh;
+        background: url(/pookie.svg);
+        background-size: 100%;
+        background-position: 0 35%;
+        opacity: 0.4;
+      }
+      div#content {
+        background-color: rgba(255,255,255,0.9);
+        margin: 0 auto;
+        position: relative;
+        width: 800px;
+        padding: 10px;
+      }
+    </style>
+  </head>
+  <body>
+    <div id="background"></div>
+    <div id="content">
+      <h1>{{ page.title }}</h1>
+      {{ content }}
+    </div>
+  </body>
+</html>
