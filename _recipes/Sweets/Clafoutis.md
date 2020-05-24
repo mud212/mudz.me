@@ -24,4 +24,4 @@ any air bubbles.
 
 Bake in the preheated oven until puffed and center is set, 45 minutes to
 1 hour. Cool until the clafoutis deflates and is just
-warm.[ ]{.Apple-converted-space}
+warm.

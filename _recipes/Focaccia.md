@@ -31,7 +31,7 @@ is really sticky and tacky.
 Coat the inside of the mixer bowl lightly with olive oil and return the
 dough to the bowl. Cover it with plastic wrap and put it in a warm place
 until the dough has doubled in size, at least 1
-hour.[ ]{.Apple-converted-space}
+hour.
 
 Coat a jelly roll pan with the remaining 1/2 cup olive oil.
 
@@ -49,4 +49,4 @@ Liberally sprinkle the top of the focaccia with some coarse sea salt and
 lightly drizzle a little oil on top. Bake the dough until the top of the
 loaf is golden brown, about 25 to 30 minutes. Remove the focaccia from
 the oven and let it cool before cutting and
-serving.[ ]{.Apple-converted-space}
+serving.

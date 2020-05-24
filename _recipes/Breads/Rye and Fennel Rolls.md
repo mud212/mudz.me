@@ -38,15 +38,14 @@ a warm place.
 
 Whilst the dough is rising mix the crust ingredients. Simply place all
 the ingredients into a small bowl then add sufficient water to form a
-thick paste.[  ]{.Apple-converted-space}Set aside.
+thick paste.Set aside.
 
 When the bread has risen take from the bowl and divide into 12 equal
 pieces -- each one should be around 70g each.
 
 Shape the rolls and place on one or two baking sheets. Take the paste
-and using the hands gently cover each roll with a layer.[ 
-]{.Apple-converted-space}Once each bun is covered well then sift over a
-layer of white bread flour.[  ]{.Apple-converted-space}Leave to prove
+and using the hands gently cover each roll with a layer. Once each bun
+is covered well then sift over a layer of white bread flour.Leave to prove
 uncovered in a warm place for one and a half hours. During the prove the
 tops will start to crack as they rise and look quite interesting.
 

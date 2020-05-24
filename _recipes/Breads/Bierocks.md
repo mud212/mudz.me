@@ -43,7 +43,7 @@ Season ground beef with salt, pepper and garlic powder. Brown with onion
 and green pepper. Drain. Add cabbage and pimientos and cook until
 cabbage is tender. Turn off heat, add cheese and cover for approximately
 1 minute, or until cheese is mostly melted, and stir until mixed
-through.[ ]{.Apple-converted-space}
+through.
 
 Once dough is ready, roll out on a floured surface into 6-inch circles.
 Place approximately 3/4 cup filling in center of each, pinch to close

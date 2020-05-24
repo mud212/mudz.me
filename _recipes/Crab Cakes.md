@@ -5,18 +5,18 @@ title: Crab Cakes
 
 ## Ingredients
 
-* 1/4 cup mayonnaise[ ]{.Apple-converted-space}
+* 1/4 cup mayonnaise
 * 1 Tablespoon Dijon mustard
-* 1 teaspoon seafood seasoning, such as Old Bay[ ]{.Apple-converted-space}
-* 1/8 teaspoon cayenne pepper[ ]{.Apple-converted-space}
+* 1 teaspoon seafood seasoning, such as Old Bay
+* 1/8 teaspoon cayenne pepper
 * 1 teaspoon Worcestershire sauce
-* 1 Tablespoon chopped fresh flat-leaf parsley[ ]{.Apple-converted-space}
-* 1 red bell pepper, finely chopped[ ]{.Apple-converted-space}
-* 2 green onions, finely chopped[ ]{.Apple-converted-space}
+* 1 Tablespoon chopped fresh flat-leaf parsley
+* 1 red bell pepper, finely chopped
+* 2 green onions, finely chopped
 * 2 large egg yolks
 * 2-3 Tablespoons milk
-* 1 pound jumbo lump crabmeat[ ]{.Apple-converted-space}
-* 3 cups fresh breadcrumbs[ ]{.Apple-converted-space}
+* 1 pound jumbo lump crabmeat
+* 3 cups fresh breadcrumbs
 * vegetable oil, for frying
 
 ### Aioli
@@ -38,7 +38,7 @@ incorporated. Add the mixture to the crab meat; add breadcrumbs on top.
 Fold everything together lightly until just combined. Again, be very
 careful not to break up the crab meat. Using your hands, form a desired
 amount of mixture onto a tight ball shape and place into the
-refrigerator to chill.[ ]{.Apple-converted-space}
+refrigerator to chill.
 
 Place a large nonstick skillet over medium to medium-high heat, adding
 enough vegetable oil to generously coat the bottom of the pan, about

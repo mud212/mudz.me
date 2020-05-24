@@ -38,7 +38,7 @@ heat, stir in the cilantro, and leave to cool.
 Dampen the edges of a spring roll wrapper, place a heaping teaspoon of
 filling in the center, fold the wrapper into a triangle, and pinch to
 seal. Place on a lined baking sheet. Repeat until all the filling is
-used.[ ]{.Apple-converted-space}
+used.
 
 Brush the sambusas liberally on all sides with oil. Bake until golden
 brown, 6 - 10 minutes, flip, and bake another 2 - 3 minutes. Serve.

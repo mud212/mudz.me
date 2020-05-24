@@ -18,7 +18,7 @@ Peel and rinse the tomatillos. Place them in a pot of boiling water and
 boil for five minutes. Remove them and set aside to cool.
 
 Combine all the ingredients in a food processor, along with 1/2 teaspoon
-of the jalapeño seeds.[  ]{.Apple-converted-space}Run the food processor
+of the jalapeño seeds.Run the food processor
 until the sauce is blended. If the sauce seems too thick, add 1
 Tablespoon of water and blend again -- continuing until it reaches your
 desired consistency.

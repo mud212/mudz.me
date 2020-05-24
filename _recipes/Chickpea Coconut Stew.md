@@ -35,7 +35,7 @@ down, 8-10 minutes. Remove about a cup of the chickpeas and set aside.
 Using a spoon, crush the remaining chickpeas. Add the coconut milk and
 stock to the pot, and season with salt and pepper. Bring to a simmer and
 cook, stirring occasionally, until thickened, 30-35
-minutes.[ ]{.Apple-converted-space}
+minutes.
 
 Add the greens and stir through. Cook until softened, 3-7 minutes. Turn
 off the heat, add the reserved chickpeas and mint leaves, and stir

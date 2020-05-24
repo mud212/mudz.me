@@ -29,14 +29,14 @@ Pour in the Mexican Coca-Cola, orange juice, milk, and lime juice then
 stir in the chipotle chile powder, cinnamon, allspice, garlic and bay
 leaf. Add enough water to the pot to just reach the top of the pork,
 then turn the heat up to high and bring the pot to a
-boil.[ ]{.Apple-converted-space}
+boil.
 
 Once the pot is at a boil, turn the heat down to low and then simmer
 uncovered without stirring for about two hours or until the pork is
 tender. At this time, turn the heat up to medium and then while
 occasionally stirring, cook until most of the liquid has reduced, most
 of the fat has rendered, and the pork has browned, about 30-45
-minutes.[ ]{.Apple-converted-space}
+minutes.
 
 Remove from the pot and serve warm with tortillas, guacamole, and sour
 cream.

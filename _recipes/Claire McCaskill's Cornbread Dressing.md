@@ -11,7 +11,7 @@ title: Claire McCaskill's Cornbread Dressing
 * 1 clove garlic, minced
 * 2 teaspoons sage
 * 2 teaspoons thyme
-* 2--3 celery stalks,[  ]{.Apple-converted-space}chopped
+* 2--3 celery stalks,chopped
 * 1 pan cornbread, cubed and dried
 * Chicken broth
 

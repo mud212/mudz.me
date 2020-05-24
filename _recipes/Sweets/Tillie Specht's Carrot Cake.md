@@ -22,7 +22,7 @@ title: Tillie Specht's Carrot Cake
 
 ## Directions
 
-[ ]{.Apple-converted-space}
+
 
 Heat the oven to 350° F. Butter and flour a 13-inch by 9-inch baking
 dish.
@@ -42,6 +42,6 @@ into the baking dish and bake for 50 - 55 minutes.
 
 2 teaspoons vanilla
 
-[ ]{.Apple-converted-space}
+
 
 Beat together & spread onto the cooled cake.

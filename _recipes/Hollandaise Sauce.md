@@ -22,4 +22,4 @@ they will scramble. Slowly drizzle in the melted butter and continue to
 whisk until the sauce is thickened and doubled in volume. Remove from
 heat, whisk in cayenne and salt. Cover and place in a warm spot until
 ready to use for the eggs benedict. If the sauce gets too thick, whisk
-in a few drops of warm water before serving.[ ]{.Apple-converted-space}
+in a few drops of warm water before serving.

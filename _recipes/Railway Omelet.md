@@ -19,7 +19,7 @@ title: Railway Omelet
 ## Directions
 
 In a large bowl, whisk together all the ingredients except the
-oil.[ ]{.Apple-converted-space}
+oil.
 
 Heat the oil in a pan over medium high heat. When the oil is hot, turn
 the heat down and add half the omelet mixture to the pan, swirling it

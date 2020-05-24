@@ -13,17 +13,17 @@ title: Baguettes
 
 ## Directions
 
-Mix together into a dough.[ ]{.Apple-converted-space}
+Mix together into a dough.
 
 Pour out onto a board and let the dough rest two minutes. Knead 5-10
 minutes, letting rest another minute. Repeat until dough looks smooth.
 Transfer to a bowl, cover, and let rise at \~75° F to 3 1/2 times its
-original size (minimum 3 hours).[ ]{.Apple-converted-space}
+original size (minimum 3 hours).
 
-Scrape the[  ]{.Apple-converted-space}dough onto a floured surface with
+Scrape thedough onto a floured surface with
 your hands and pat down. Fold over, transfer to a bowl, and let rise
 again. Again scrape onto floured surface and deflate the
-dough.[ ]{.Apple-converted-space}
+dough.
 
 Heat the oven to 450° F.
 

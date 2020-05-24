@@ -26,7 +26,7 @@ Season the meat with salt and pepper.
 
 Heat the oil in a large saucepan over medium heat. Brown the meat well
 on all sides. Remove the meat to a plate and keep
-warm.[ ]{.Apple-converted-space}
+warm.
 
 To the same pan, add the onion, garlic, peppers, and carrots, and sauté
 until the onions are translucent. Add the peanut butter and stock

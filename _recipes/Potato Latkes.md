@@ -17,7 +17,7 @@ title: Potato Latkes
 Place the potatoes in a cheesecloth and wring, extracting as much
 moisture as possible.
 
-[ ]{.Apple-converted-space}
+
 
 In a medium bowl stir the potatoes, onion, eggs, flour and salt
 together.

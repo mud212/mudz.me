@@ -25,4 +25,4 @@ stream. Return the mixture to the saucepan and bring to a boil over
 medium heat, stirring constantly until the mixture thickens. Strain and
 set aside to cool with a buttered piece of waxed paper on top to prevent
 a skin from forming. When cool, fold in the whipped
-cream.[ ]{.Apple-converted-space}
+cream.

@@ -5,11 +5,11 @@ title: Vanilla Custard
 
 ## Ingredients
 
-* 1/2 cup sugar[ ]{.Apple-converted-space}
-* 3 Tablespoons corn starch[ ]{.Apple-converted-space}
-* 1/2 teaspoon salt[ ]{.Apple-converted-space}
-* 4 egg yolks[ ]{.Apple-converted-space}
-* 3 cups milk[ ]{.Apple-converted-space}
+* 1/2 cup sugar
+* 3 Tablespoons corn starch
+* 1/2 teaspoon salt
+* 4 egg yolks
+* 3 cups milk
 * 2 Tablespoons butter
 * 2 teaspoons vanilla paste
 

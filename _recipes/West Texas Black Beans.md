@@ -13,7 +13,7 @@ title: West Texas Black Beans
 * 6 cloves garlic, minced
 * 4 tomatillos, husks removed and finely chopped
 * 1 cup chopped cilantro, plus more for serving
-* 1 Tablespoon lime juice[ ]{.Apple-converted-space}
+* 1 Tablespoon lime juice
 
 ## Directions
 

@@ -10,10 +10,10 @@ title: Sichuan Chicken with Peppercorns and Chili
 * 2 teaspoons light soy sauce
 * 1 teaspoon Shaoxing rice wine
 * 2 teaspoons cornstarch
-* 1 tablespoon water[ ]{.Apple-converted-space}
-* 3 cloves of garlic[ ]{.Apple-converted-space}
+* 1 tablespoon water
+* 3 cloves of garlic
 * 1/2 inch chunk of ginger, thinly sliced
-* About 10 dried red chillies[ ]{.Apple-converted-space}
+* About 10 dried red chillies
 * 1 teaspoon whole Sichuan peppercorns
 * 1 bell pepper, cut into 1/2 inch squares
 

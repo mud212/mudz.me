@@ -49,7 +49,7 @@ you can lift the dough. If it's sticking, add more flour underneath.)
 For the filling, spread the softened butter onto the dough, leaving a
 ½-inch border around the edges. Stir together the sugar and cinnamon
 then evenly sprinkle over the butter. Top the cinnamon-sugar with the
-crumbled bacon and pecans.[ ]{.Apple-converted-space}
+crumbled bacon and pecans.
 
 Starting on one of the long sides, roll the dough and pinch ends to
 seal. Cut off 12 1-inch slices from the rolled dough, and place the

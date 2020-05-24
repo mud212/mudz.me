@@ -5,12 +5,12 @@ title: Cornbread
 
 ## Ingredients
 
-* 4 Tablespoons bacon drippings or canola oil[ ]{.Apple-converted-space}
+* 4 Tablespoons bacon drippings or canola oil
 * 2 cups cornmeal (yellow or white)
-* 1/2 cup flour[ ]{.Apple-converted-space}
-* 1 Tablespoon baking powder[ ]{.Apple-converted-space}
-* 1 teaspoon kosher salt[ ]{.Apple-converted-space}
-* 1 egg[ ]{.Apple-converted-space}
+* 1/2 cup flour
+* 1 Tablespoon baking powder
+* 1 teaspoon kosher salt
+* 1 egg
 * 2 cups buttermilk
 
 ## Directions
@@ -22,11 +22,11 @@ place in the oven as it preheats.
 
 In a large bowl, stir together the cornmeal, flour, baking powder, and
 salt. Whisk together the egg and buttermilk then stir into the dry
-ingredients.[ ]{.Apple-converted-space}
+ingredients.
 
 Take the skillet out of oven, and pour the hot oil into the batter and
 stir until well combined.
 
 Pour the batter into the skillet and bake for 20 minutes. Cornbread
 should be brown on top and pulling away from the sides of the
-skillet.[ ]{.Apple-converted-space}
+skillet.

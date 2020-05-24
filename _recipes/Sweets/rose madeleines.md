@@ -5,12 +5,12 @@ layout: recipe
 * Rose Madeleines:
 * \- 1/2 cup of unsalted butter (melted and cooled)
 * \- 1/4 cup of white sugar
-* [ ]{.Apple-converted-space}- 1/4 teaspoon salt
-* [ ]{.Apple-converted-space}- 2 eggs
-* [ ]{.Apple-converted-space}- 3/4 cup all-purpose flour + 1 tablespoon
-* [ ]{.Apple-converted-space}- 1/4 teaspoon lemon zest
-* [ ]{.Apple-converted-space}- 3 tablespoons rose syrup
-* [ ]{.Apple-converted-space}- Madeleine molded baking tray.
+* - 1/4 teaspoon salt
+* - 2 eggs
+* - 3/4 cup all-purpose flour + 1 tablespoon
+* - 1/4 teaspoon lemon zest
+* - 3 tablespoons rose syrup
+* - Madeleine molded baking tray.
 * Whisk the eggs, sugar and salt in bowl very well for about 5 minutes.
 * Hold a strainer over the bowl and sprinkle in the flour, fold this in
 * with a spatula. Fold in the melted butter until the batter is evenly

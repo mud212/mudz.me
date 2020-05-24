@@ -18,6 +18,6 @@ title: Sharky's Salsa
 ## Directions
 
 Cook tomatoes 1 to 1 1/2 hours, skimming off the skins as they come to
-the top. Grind onions, garlic,[  ]{.Apple-converted-space}and peppers in
+the top. Grind onions, garlic,and peppers in
 a blender and add to tomatoes. Stir in the remaining ingredients and
 cook for another 35 minutes. Makes 3 quarts.

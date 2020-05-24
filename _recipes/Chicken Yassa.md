@@ -25,7 +25,7 @@ title: Chicken Yassa
 Combine the oil, lemon juice, mustard, Maggi sauce, vinegar, bay leaf,
 onions, garlic, chicken in a large bowl. Allow the chicken to marinate
 in the refrigerator for a few hours or
-overnight.[ ]{.Apple-converted-space}
+overnight.
 
 Heat an oven to 400° F. Remove chicken from the marinade, and reserve
 the marinade. Bake the chicken in the oven until lightly browned (it

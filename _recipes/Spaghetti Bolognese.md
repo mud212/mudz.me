@@ -5,36 +5,20 @@ title: Spaghetti Bolognese
 
 ## Ingredients
 
-* 1/2 large onion or 1 small, cut into 1-inch dice[
-* ]{.Apple-tab-span}
-## NOTE:
-fennel
-
-1 large carrot, cut into 1/2-inch dice
-
-2 ribs celery, cut into 1-inch dice
-
-2 cloves garlic
-
-Extra-virgin olive oil, for the pan
-
-Kosher salt
-
-1 pound ground chuck, brisket, or round, or combination
-
-1 cup tomato paste
-
-1 1/2 cups hearty red wine
-
-Water
-
-3 bay leaves
-
-1 bunch thyme, tied in a bundle
-
-1 pound spaghetti or fettuccine
-
-1/2 cup grated Parmigiano-Reggiano
+* 1/2 large onion or 1 small, cut into 1-inch dice (**NOTE:** cooked fennel worked, next dry raw fennel)
+* 1 large carrot, cut into 1/2-inch dice
+* 2 ribs celery, cut into 1-inch dice
+* 2 cloves garlic
+* Extra-virgin olive oil, for the pan
+* Kosher salt
+* 1 pound ground chuck, brisket, or round, or combination
+* 1 cup tomato paste
+* 1 1/2 cups hearty red wine
+* Water
+* 3 bay leaves
+* 1 bunch thyme, tied in a bundle
+* 1 pound spaghetti or fettuccine
+* 1/2 cup grated Parmigiano-Reggiano
 
 ## Directions
 

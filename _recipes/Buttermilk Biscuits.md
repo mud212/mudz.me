@@ -15,10 +15,10 @@ title: Buttermilk Biscuits
 ## Directions
 
 Preheat the oven to 450°F and line a baking tray with greaseproof
-paper.[ ]{.Apple-converted-space}
+paper.
 
 Sift the flour, baking powder, baking soda, and salt into a large bowl.
-Place in the freezer for half an hour.[ ]{.Apple-converted-space}
+Place in the freezer for half an hour.
 
 Add the chilled butter, and using your fingers, rub the butter into the
 flour until you get pea-sized lumps. Add the buttermilk and stir gently
@@ -31,4 +31,4 @@ Cut out some circles of dough and place them on the prepared baking tray
 close together. Continue cutting out circles until all the dough is
 used, then put the biscuits in the oven. Bake for 8-10 minutes. Once
 they're lightly brown on top they're read to come
-out.[ ]{.Apple-converted-space}
+out.

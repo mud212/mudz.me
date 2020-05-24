@@ -23,14 +23,14 @@ title: Poulet au Paprika
 Season the chicken with salt and pepper. Heat the bacon drippings in a
 sauté pan and, working in batches, brown the chicken pieces on all
 sides. Remove to a plate. Drain off all but a tablespoon of the fat from
-the pan.[ ]{.Apple-converted-space}
+the pan.
 
 Lower the heat and add the julienned pepper, onion, and paprika. Cook
 until soft, but not colored, about 12 minutes, adding the garlic for the
 final minute. Deglaze the pan with the wine. Add the tomatoes and bay
 leaf. Season with salt and pepper. Add the chicken back to the pan and
 cover. Cook, turning the chicken occasionally, until tender, about 30
-minutes.[ ]{.Apple-converted-space}
+minutes.
 
 Remove the chicken to a serving platter and cover with foil to keep
 warm. Turn up the heat under the sauce and boil down to sauce

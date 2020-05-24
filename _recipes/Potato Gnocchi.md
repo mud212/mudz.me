@@ -21,7 +21,7 @@ Heat the oven to 350° F.
 
 Wash the potatoes, prick them with a fork and place them on a sheet pan.
 Bake them until very soft, about 1 1/2 to 2
-hours.[ ]{.Apple-converted-space}
+hours.
 
 While the potatoes are baking, beat the eggs and yolk lightly together
 in a small bowl. In a large bowl, combine flour, rosemary, salt, a few
@@ -31,7 +31,7 @@ When the potatoes are soft, cool them slightly and scoop out the
 insides. Rice the scooped potato with a ricer, or mash them with a fork.
 Add the potatoes and eggs to the flour and mix gently with your hands
 until all the ingredients are well incorporated and the dough is
-smooth.[ ]{.Apple-converted-space}
+smooth.
 
 Turn the dough out onto a lightly floured flat surface. Lightly knead
 and add a little more flour if the dough is overly sticky. Let the dough

@@ -5,12 +5,12 @@ title: Pickled Grapes
 
 ## Ingredients
 
-* 1 cup white wine vinegar[ ]{.Apple-converted-space}
-* 1/2 cup sugar[ ]{.Apple-converted-space}
-* 1 teaspoon mustard seeds[ ]{.Apple-converted-space}
-* 1/2 teaspoon whole black peppercorns[ ]{.Apple-converted-space}
-* 1/4 teaspoon kosher salt[ ]{.Apple-converted-space}
-* 1 cinnamon stick[ ]{.Apple-converted-space}
+* 1 cup white wine vinegar
+* 1/2 cup sugar
+* 1 teaspoon mustard seeds
+* 1/2 teaspoon whole black peppercorns
+* 1/4 teaspoon kosher salt
+* 1 cinnamon stick
 * 1 pound red or green seedless grapes
 
 ## Directions

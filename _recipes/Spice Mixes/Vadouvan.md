@@ -19,7 +19,7 @@ title: Vadouvan
 * 1/2 teaspoon freshly grated nutmeg
 * 1/2 teaspoon crushed red pepper
 * 1/2 teaspoon freshly ground white pepper
-* 1/4 teaspoon ground cloves[ ]{.Apple-converted-space}
+* 1/4 teaspoon ground cloves
 
 ## Directions
 

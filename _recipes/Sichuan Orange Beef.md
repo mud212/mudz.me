@@ -10,7 +10,7 @@ title: Sichuan Orange Beef
 * 2 Tablespoons clear honey
 * 1/4 cup orange juice
 * pinch ground white pepper
-* 2 beef filet steaks[ ]{.Apple-converted-space}
+* 2 beef filet steaks
 * 1 Tablespoon groundnut oil
 * 3 1/2 oz fresh shiitake mushrooms, sliced
 

@@ -6,19 +6,19 @@ title: Mac and Cheese
 ## Ingredients
 
 * 7 Tablespoons butter
-* 4 Tablespoons flour[ ]{.Apple-converted-space}
-* 2 cups half and half[ ]{.Apple-converted-space}
-* 1 teaspoon salt[ ]{.Apple-converted-space}
-* 1/4 teaspoon ground white pepper[ ]{.Apple-converted-space}
-* 1/4 teaspoon Emeril\'s Red Hot Sauce[ ]{.Apple-converted-space}
-* 4 ounces grated cheddar cheese[ ]{.Apple-converted-space}
-* 4 ounces grated gruyere cheese[ ]{.Apple-converted-space}
-* 1 pound elbow macaroni[ ]{.Apple-converted-space}
+* 4 Tablespoons flour
+* 2 cups half and half
+* 1 teaspoon salt
+* 1/4 teaspoon ground white pepper
+* 1/4 teaspoon Emeril\'s Red Hot Sauce
+* 4 ounces grated cheddar cheese
+* 4 ounces grated gruyere cheese
+* 1 pound elbow macaroni
 * 1/2 teaspoon creole seasoning
 
 ## Directions
 
-[ ]{.Apple-converted-space}In a heavy, medium saucepan melt 4
+In a heavy, medium saucepan melt 4
 tablespoons of the butter over low heat. Add the flour and stir to
 combine. Cook, stirring constantly, for 3 minutes. Increase the heat to
 medium and whisk in the half and half little by little. Cook until

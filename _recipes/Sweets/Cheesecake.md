@@ -27,17 +27,17 @@ Heat the oven to 325° F.
 
 In a mixing bowl, combine the graham crackers, cinnamon, and butter
 until evenly moistened. Lightly coat the bottom and sides of an 8-inch
-springform pan with non-stick cooking spray.[ ]{.Apple-converted-space}
+springform pan with non-stick cooking spray.
 
 Pour the crumbs into the pan and, using the bottom of a measuring cup or
 the smooth bottom of a glass, press the crumbs down into the base and
 1-inch up the sides. Refrigerate for 5
-minutes.[ ]{.Apple-converted-space}
+minutes.
 
 In the bowl of an electric mixer, beat the cream cheese on low speed for
 1 minute until smooth and free of any lumps. Add the eggs, 1 at a time,
 and continue to beat slowly until combined. Gradually add sugar and beat
-until creamy, for 1 to 2 minutes.[ ]{.Apple-converted-space}
+until creamy, for 1 to 2 minutes.
 
 Add sour cream, lemon zest, and vanilla. Periodically scrape down the
 sides of the bowl and the beaters. The batter should be well-mixed but

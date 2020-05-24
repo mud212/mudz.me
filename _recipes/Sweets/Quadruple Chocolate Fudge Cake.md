@@ -11,7 +11,7 @@ title: Quadruple Chocolate Fudge Cake
 * unsalted butter, for greasing
 * 225 grams all-purpose flour
 * 350 grams caster sugar
-* 85 grams[  ]{.Apple-converted-space}cocoa powder
+* 85 gramscocoa powder
 * 1 1/2 teaspoon baking powder
 * 11/2 teaspoon baking soda
 * 2 medium eggs

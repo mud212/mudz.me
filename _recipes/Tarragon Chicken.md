@@ -22,12 +22,12 @@ Melt the butter with the oil in a large skillet over quite high heat.
 Sprinkle the chicken pieces with salt and pepper and fry in batches
 until well browned, about 5 minutes per side. Put all the chicken back
 in the pan, add the chicken stock and reduce the heat to medium. Cover
-and cook until tender, about 30 minutes.[ ]{.Apple-converted-space}
+and cook until tender, about 30 minutes.
 
 Remove the chicken to a plate and keep warm. Reduce any leftover juices
 until sticky. Add the wine and the shallots and reduce to a thickish
 sauce, about 5 minutes. Add the cream and half the tarragon. Boil down
-again to sauce consistency, 3 to 5 minutes.[ ]{.Apple-converted-space}
+again to sauce consistency, 3 to 5 minutes.
 
 Season the sauce with salt, pepper, and lemon juice. Put back the
 chicken pieces, turning to coat, then transfer to a platter. Pour the

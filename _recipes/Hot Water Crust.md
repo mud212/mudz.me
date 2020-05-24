@@ -25,6 +25,6 @@ dough between two sheets of plastic wrap or parchment paper, to 1/4-inch
 thick. Line an 8-inch springform pan with the crust, and fill with
 prepared filling. Roll out the top crust and place on top. Pinch the
 seams to seal, and use the handle of a wooden spoon to create a hole in
-the center of the top crust.[ ]{.Apple-converted-space}
+the center of the top crust.
 
 Bake at 375° F until golden and crispy, 45-75 minutes.

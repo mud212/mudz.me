@@ -8,7 +8,7 @@ title: Peach Jalapeño Jam
 * 1/2 pounds peaches
 * 2 cups granulated sugar
 * 1/4 cup lemon juice
-* 2 jalapeños, seeded and diced[ ]{.Apple-converted-space}
+* 2 jalapeños, seeded and diced
 
 ## Directions
 

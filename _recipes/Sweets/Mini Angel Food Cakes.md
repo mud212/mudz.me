@@ -6,11 +6,11 @@ title: Mini Angel Food Cakes
 ## Ingredients
 
 * 3/4 cup powdered sugar
-* 1/2 cup cake flour[ ]{.Apple-converted-space}
-* 1/8 teaspoon salt[ ]{.Apple-converted-space}
-* 6 large egg whites, at room temperature[ ]{.Apple-converted-space}
-* 3/4 teaspoon cream of tartar[ ]{.Apple-converted-space}
-* 1/2 cup granulated sugar[ ]{.Apple-converted-space}
+* 1/2 cup cake flour
+* 1/8 teaspoon salt
+* 6 large egg whites, at room temperature
+* 3/4 teaspoon cream of tartar
+* 1/2 cup granulated sugar
 * 1/2 teaspoon vanilla extract
 
 ## Directions
@@ -35,4 +35,4 @@ Bake until the cakes feel springy and a toothpick inserted into the
 center comes out clean, 40 to 50 minutes. Invert the pans onto a funnel
 or the neck of a bottle and let cool completely. Loosen the edges of the
 cakes with a small knife, tap the sides of the pans against the counter,
-and unmold.[ ]{.Apple-converted-space}
+and unmold.

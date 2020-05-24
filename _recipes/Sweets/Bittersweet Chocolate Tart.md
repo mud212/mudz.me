@@ -8,30 +8,30 @@ title: Bittersweet Chocolate Tart
 
 ### Crust
 
-* 1 cup all-purpose flour[ ]{.Apple-converted-space}
-* 1 stick unsalted butter, softened[ ]{.Apple-converted-space}
-* 1/2 cup confectioners\' sugar[ ]{.Apple-converted-space}
-* 3 Tablespoons unsweetened cocoa powder[ ]{.Apple-converted-space}
+* 1 cup all-purpose flour
+* 1 stick unsalted butter, softened
+* 1/2 cup confectioners\' sugar
+* 3 Tablespoons unsweetened cocoa powder
 * 3 Tablespoons almond flour
-* 1/2 teaspoon salt[ ]{.Apple-converted-space}
+* 1/2 teaspoon salt
 * 1 large egg
 
 ### Filling
 
-* 3/4 cup heavy cream[ ]{.Apple-converted-space}
-* 1/2 cup whole milk[ ]{.Apple-converted-space}
-* 12 ounces bittersweet chocolate, chopped[ ]{.Apple-converted-space}
-* 1 large egg[ ]{.Apple-converted-space}
+* 3/4 cup heavy cream
+* 1/2 cup whole milk
+* 12 ounces bittersweet chocolate, chopped
+* 1 large egg
 * 1 large egg yolk
 
 ### Glaze
 
-* 1 teaspoon unflavored powdered gelatin[ ]{.Apple-converted-space}
-* 2 Tablespoons whole milk[ ]{.Apple-converted-space}
-* 1/3 cup heavy cream[ ]{.Apple-converted-space}
-* 1/4 cup sugar[ ]{.Apple-converted-space}
-* 3 Tablespoons unsweetened cocoa powder[ ]{.Apple-converted-space}
-* 2 ounces milk chocolate, chopped[ ]{.Apple-converted-space}
+* 1 teaspoon unflavored powdered gelatin
+* 2 Tablespoons whole milk
+* 1/3 cup heavy cream
+* 1/4 cup sugar
+* 3 Tablespoons unsweetened cocoa powder
+* 2 ounces milk chocolate, chopped
 * Sweetened whipped cream, for serving
 
 ## Directions

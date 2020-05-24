@@ -24,7 +24,7 @@ overhangs on both sides. Set aside.
 
 Combine the chopped chocolate, peanut butter, and olive oil in a small
 saucepan over low heat. Stir until the chocolate and peanut butter is
-melted and evenly combined.[  ]{.Apple-converted-space}Pour into a large
+melted and evenly combined.Pour into a large
 bowl and let cool for 2 minutes.
 
 Whisk in the mashed bananas, followed by the eggs, one at a time until

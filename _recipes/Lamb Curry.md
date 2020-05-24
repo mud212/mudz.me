@@ -7,26 +7,26 @@ title: Lamb Curry
 
 * 1/2 cup dried chickpeas, soaked
 * 1 Tablespoon coriander seeds
-* 1 Tablespoon cumin seeds[ ]{.Apple-converted-space}
-* 1 Tablespoon fennel seeds[ ]{.Apple-converted-space}
-* 1 Tablespoon fenugreek[ ]{.Apple-converted-space}
+* 1 Tablespoon cumin seeds
+* 1 Tablespoon fennel seeds
+* 1 Tablespoon fenugreek
 * 8-ounces boneless lamb leg, cut into 1-inch
-* chunks[ ]{.Apple-converted-space}
-* Kosher salt[ ]{.Apple-converted-space}
-* 2 Tablespoons all-purpose flour[ ]{.Apple-converted-space}
-* Olive oil[ ]{.Apple-converted-space}
-* 2 teaspoons ground turmeric[ ]{.Apple-converted-space}
+* chunks
+* Kosher salt
+* 2 Tablespoons all-purpose flour
+* Olive oil
+* 2 teaspoons ground turmeric
 * 1 1/2 teaspoons onion powder
-* 1 onion, thinly sliced[ ]{.Apple-converted-space}
-* 5 cloves garlic, minced[ ]{.Apple-converted-space}
-* 2 stalks celery, cut into a medium dice[ ]{.Apple-converted-space}
+* 1 onion, thinly sliced
+* 5 cloves garlic, minced
+* 2 stalks celery, cut into a medium dice
 * 1 bulb fennel, thinly sliced plus fennel fronds picked from 1
-* stem[ ]{.Apple-converted-space}
-* 3 Tablespoons tomato paste[ ]{.Apple-converted-space}
-* 2 bay leaves[ ]{.Apple-converted-space}
+* stem
+* 3 Tablespoons tomato paste
+* 2 bay leaves
 * 1 teaspoon thyme
-* A pinch crushed red pepper flakes[ ]{.Apple-converted-space}
-* 2 cups chicken stock[ ]{.Apple-converted-space}
+* A pinch crushed red pepper flakes
+* 2 cups chicken stock
 * 1/2 bunch fresh cilantro, roughly chopped
 
 ## Directions
@@ -48,7 +48,7 @@ Lightly coat a large Dutch oven with olive oil and heat over
 medium-high. When the oil is shimmering, add the lamb (work in batches
 if necessary to not over crowd the pot) and sear, turning as needed,
 until crispy and golden brown on all sides. Transfer the lamb to a bowl
-and set aside.[ ]{.Apple-converted-space}
+and set aside.
 
 Add the turmeric, onion powder, and onion to the pot. Sauté the onion,
 scraping up the brown bits from the bottom of the pot, until they are

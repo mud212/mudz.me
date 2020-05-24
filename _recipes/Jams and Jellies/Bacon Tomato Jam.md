@@ -30,7 +30,7 @@ Crumble the bacon and add it back to the skillet along with the
 remaining ingredients. Stir everything together. Increase the heat to
 medium high and bring to a gentle boil, then reduce heat and simmer
 mixture for 45-60 minutes, stirring occasionally, until mixture is
-thick.[ ]{.Apple-converted-space}
+thick.
 
 Serve warm or cool and store in a sealed container in the fridge. The
 mixture makes about 2 cups and will stay good in the fridge for 2-3

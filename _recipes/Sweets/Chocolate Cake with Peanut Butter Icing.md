@@ -30,11 +30,11 @@ a cake tester comes out clean, 25-35 minutes.
 
 ## Icing
 
-1/2 cup butter, softened[ ]{.Apple-converted-space}
+1/2 cup butter, softened
 
-1 cup creamy peanut butter[ ]{.Apple-converted-space}
+1 cup creamy peanut butter
 
-3 tablespoons milk, or as needed[ ]{.Apple-converted-space}
+3 tablespoons milk, or as needed
 
 2 cups confectioners\' sugar
 

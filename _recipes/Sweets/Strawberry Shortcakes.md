@@ -3,34 +3,34 @@ layout: recipe
 * title: Strawberry Shortcakes
 * ---
 * **Ingredients**
-* Biscuits:[ ]{.Apple-converted-space}
+* Biscuits:
 * 1 3/4 cups all-purpose flour, plus 1 tablespoon for
-* dusting[ ]{.Apple-converted-space}
-* 1/4 cup sugar, plus more for sprinkling[ ]{.Apple-converted-space}
-* 1 tablespoon baking powder[ ]{.Apple-converted-space}
-* 1/4 teaspoon fine sea salt[ ]{.Apple-converted-space}
+* dusting
+* 1/4 cup sugar, plus more for sprinkling
+* 1 tablespoon baking powder
+* 1/4 teaspoon fine sea salt
 * 1 stick cold unsalted butter, cut into 1/2-inch
-* cubes[ ]{.Apple-converted-space}
+* cubes
 * 1/2 cup chilled heavy cream, plus 2 tablespoons for
-* brushing[ ]{.Apple-converted-space}
+* brushing
 * zest of 1 orange
 * For Strawberry Sauce:
 * 3/4 cup sugar
 * 2 tablespoons cornstarch
 * 1/4 cup orange juice
 * 6 cups strawberries
-* Whipped Cream:[ ]{.Apple-converted-space}
-* 2 cups chilled heavy cream[ ]{.Apple-converted-space}
-* 2 teaspoons pure vanilla extract[ ]{.Apple-converted-space}
-* 1 teaspoon almond extract[ ]{.Apple-converted-space}
+* Whipped Cream:
+* 2 cups chilled heavy cream
+* 2 teaspoons pure vanilla extract
+* 1 teaspoon almond extract
 * 6 tablespoons sugar
 * **Directions**
 * Preheat the oven to 375 degrees F. Line a baking sheet with parchment
-* paper.[ ]{.Apple-converted-space}
+* paper.
 * For the biscuits: Pulse the flour, 1/4 cup sugar, baking powder and salt
 * in the food processor, about 5 seconds. Add the cold butter cubes. Using
 * on/off turns, process until the mixture resembles coarse
-* meal.[ ]{.Apple-converted-space}
+* meal.
 * In a liquid measure, combine the heavy cream and orange zest. Add the
 * heavy cream-orange mixture to the dry ingredients in the processor and
 * pulse just until moist clumps form. Gather the dough into a ball (with
@@ -39,9 +39,9 @@ layout: recipe
 * Using a 3-inch diameter biscuit cutter, cut out 3 rounds. Cook\'s Note:
 * To prevent the dough from sticking to the biscuit cutter, dip the edge
 * of the cutter in flour before cutting out the
-* biscuits.[ ]{.Apple-converted-space}
+* biscuits.
 * Gather the dough scraps and reroll as needed to make 3 more 3-inch
-* rounds.[ ]{.Apple-converted-space}
+* rounds.
 * Arrange the rounds on the prepared sheet. Brush with 2 tablespoons cream
 * and sprinkle with 1 tablespoon sugar. Bake the biscuits until pale
 * golden and a tester inserted into the center comes out clean, 20 to 25

@@ -3,7 +3,7 @@ layout: recipe
 title: Persian Rice
 ---
 
-[ ]{.Apple-converted-space}## Ingredients
+## Ingredients
 
 * 8 cups water
 * 2 Tablespoons salt

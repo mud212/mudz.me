@@ -13,7 +13,7 @@ title: Bleu Cheesecake
 * 4 eggs
 * 1 clove garlic, minced
 * 2 teaspoons minced fresh rosemary
-* Salt and freshly ground black pepper[ ]{.Apple-converted-space}
+* Salt and freshly ground black pepper
 
 ## Directions
 

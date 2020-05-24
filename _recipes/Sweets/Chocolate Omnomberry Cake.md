@@ -51,7 +51,7 @@ springy, and a skewer inserted comes out clean.
 
 Once baked, remove the layers from the oven and allow them to cool
 before removing from their tins and setting aside to cool
-completely.[ ]{.Apple-converted-space}
+completely.
 
 ## Omnomberry Frosting
 

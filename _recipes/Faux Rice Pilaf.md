@@ -16,7 +16,7 @@ title: Faux Rice Pilaf
 
 Heat the butter in a sauté pan and gently fry the onions until soft and
 slightly golden. Add the garlic 1 minute, along with the thyme. Season
-with salt and pepper and set aside.[ ]{.Apple-converted-space}
+with salt and pepper and set aside.
 
 While the onions are cooking, bring a large pot of water to the boil.
 Salt it, as for pasta, then boil the rice until tender. Drain well. Toss

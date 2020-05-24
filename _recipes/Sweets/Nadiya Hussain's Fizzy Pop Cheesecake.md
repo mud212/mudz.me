@@ -37,13 +37,13 @@ title: Nadiya Hussain's Fizzy Pop Cheesecake
 * 7 Tablespoons double cream
 * 100 grams good-quality white chocolate
 * 2 teaspoons Sicilian lemon extract
-* yellow gel food coloring[ ]{.Apple-converted-space}
+* yellow gel food coloring
 
 ### Cream Soda Topping
 
 * 7 Tablespoons double cream
 * 100 grams white chocolate
-* 2 teaspoons vanilla bean paste[ ]{.Apple-converted-space}
+* 2 teaspoons vanilla bean paste
 
 ## Directions
 
@@ -67,7 +67,7 @@ chill the filled tin for 15 minutes in the fridge.
 Line the inside of the tin with baking paper and fill with baking beans.
 Place the tin on a baking tray. Blind bake the pastry shell for 15
 minutes. Remove the baking beans and leave the pastry to cool in the
-tin.[ ]{.Apple-converted-space}
+tin.
 
 Reduce the oven temperature to 300°F.
 
@@ -75,11 +75,11 @@ For the cream cheese filling, mix the cream cheese and sugar in a large
 bowl until incorporated. Add the sour cream, egg, egg yolk, and flour.
 Mix gently to avoid incorporating excess air and pour the mixture into
 the pastry case, leaving a small lip at the top which will be filled
-with sauce later.[ ]{.Apple-converted-space}
+with sauce later.
 
 For a ginger beer cheesecake, scatter the chopped ginger over the
 surface, or the lemon zest for a lemonade cheesecake. For a cream soda
-cheesecake, swirl in the vanilla paste.[ ]{.Apple-converted-space}
+cheesecake, swirl in the vanilla paste.
 
 Place the tin on the middle shelf of the oven and bake for 45 minutes,
 or until each cheesecake is set with a slight wobble in the centre.

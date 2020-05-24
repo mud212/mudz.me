@@ -14,7 +14,7 @@ title: Macaroons
 
 ## Directions
 
-Heat the oven to 325° F.[ ]{.Apple-converted-space}
+Heat the oven to 325° F.
 
 Combine the coconut, condensed milk, and vanilla in a large bowl. Whip
 the egg whites and salt on high speed in the bowl of an electric mixer

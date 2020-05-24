@@ -11,7 +11,7 @@ title: Lentil and Potato Stew
 * 1 cup lentils, rinsed and picked over
 * 4 cups water
 * 1 bay leaf
-* 1/2 pound potatoes, cut into 1/2-inch cubes[ ]{.Apple-converted-space}
+* 1/2 pound potatoes, cut into 1/2-inch cubes
 * Salt and freshly ground pepper
 
 ## Directions

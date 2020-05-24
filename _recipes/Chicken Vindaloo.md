@@ -29,7 +29,7 @@ title: Chicken Vindaloo
 In a spice grinder, grind together the cumin seeds, peppercorns, mustard
 seeds, and coriander seeds. In a blender, combine the onion, garlic,
 chilies, turmeric, fenugreek, garam masala, tamarind paste, vinegar, and
-the ground spices.[ ]{.Apple-converted-space}
+the ground spices.
 
 Bring the water to a simmer in a wide pan over medium heat, then add the
 chicken and potatoes. Cover and cook for ten minutes. Add the

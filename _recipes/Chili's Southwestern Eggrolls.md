@@ -34,7 +34,7 @@ title: Chili's Southwestern Eggrolls
 * dash dried dill weed
 * dash garlic powder
 * dash pepper
-* [ ]{.Apple-converted-space}
+* 
 ## Garnish
 
 2 Tablespoons chopped tomato
@@ -74,7 +74,7 @@ While the egg rolls freeze prepare the avocado-ranch dipping sauce by
 combining all of the ingredients in a small bowl. Preheat 4-6 cups of
 oil to 375°F.
 
-[ ]{.Apple-converted-space}
+
 
 Deep fry the egg rolls in the hot oil for 12-15 minutes and remove to
 paper towels or a rack to drain for about 2 minutes. Slice each egg roll

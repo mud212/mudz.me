@@ -5,8 +5,8 @@ title: Buttermilk Biscuits, Take 2
 
 ## Ingredients
 
-* 2 cups flour[ ]{.Apple-converted-space}
-* 1 Tablespoon baking powder[ ]{.Apple-converted-space}
+* 2 cups flour
+* 1 Tablespoon baking powder
 * 1 teaspoon sugar (can add more to taste)
 * 1/2 teaspoon salt
 * 8 Tablespoons butter, chilled

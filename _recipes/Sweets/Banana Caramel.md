@@ -5,10 +5,10 @@ title: Banana Caramel
 
 ## Ingredients
 
-* 2 very ripe bananas[ ]{.Apple-converted-space}
-* 1 cup sugar[ ]{.Apple-converted-space}
+* 2 very ripe bananas
+* 1 cup sugar
 * 1/2 cup water
-* 1 teaspoon vanilla[ ]{.Apple-converted-space}
+* 1 teaspoon vanilla
 * 1/4 teaspoon salt
 
 ## Directions

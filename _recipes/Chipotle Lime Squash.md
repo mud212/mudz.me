@@ -7,7 +7,7 @@ title: Chipotle Lime Squash
 
 * 2 Tablespoons olive oil
 * 2 pounds butternut squash, cubed
-* 2 teaspoons ground chipotle powder[ ]{.Apple-converted-space}
+* 2 teaspoons ground chipotle powder
 * 1 teaspoons salt
 * Zest and juice from 2 limes
 * 1/3 cup cilantro

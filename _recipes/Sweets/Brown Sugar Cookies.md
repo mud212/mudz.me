@@ -5,7 +5,7 @@ title: Brown Sugar Cookies
 
 ## Ingredients
 
-* 1/2 cup butter, softened[ ]{.Apple-tab-span}[ ]{.Apple-tab-span}
+* 1/2 cup butter, softened
 * 2 cups packed brown sugar
 * 1/4 cup sour cream
 * 1 teaspoon vanilla

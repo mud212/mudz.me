@@ -5,28 +5,28 @@ title: Garlic Knots
 
 ## Ingredients
 
-* [ ]{.Apple-converted-space}3 cups all purpose flour
-* [ ]{.Apple-converted-space}1 Tbsp sugar
-* [ ]{.Apple-converted-space}2 tsp instant yeast
-* [ ]{.Apple-converted-space}1¼ tsp salt
-* [ ]{.Apple-converted-space}2 Tbsp olive oil
-* [ ]{.Apple-converted-space}¼ cup milk
-* [ ]{.Apple-converted-space}1 cup plus 2 Tbsp lukewarm water
-* [ ]{.Apple-converted-space}2 cloves garlic, finely minced
-* [ ]{.Apple-converted-space}1 tsp Italian seasoning
+* 3 cups all purpose flour
+* 1 Tbsp sugar
+* 2 tsp instant yeast
+* 1¼ tsp salt
+* 2 Tbsp olive oil
+* ¼ cup milk
+* 1 cup plus 2 Tbsp lukewarm water
+* 2 cloves garlic, finely minced
+* 1 tsp Italian seasoning
 
 ### Glaze
 
-* [ ]{.Apple-converted-space}2 cloves garlic
-* [ ]{.Apple-converted-space}1 Tbsp melted butter
-* [ ]{.Apple-converted-space}2 Tbsp extra virgin olive oil
-* [ ]{.Apple-converted-space}½ tsp Italian seasoning
+* 2 cloves garlic
+* 1 Tbsp melted butter
+* 2 Tbsp extra virgin olive oil
+* ½ tsp Italian seasoning
 
 ## Directions
 
 In the bowl of a stand mixer fitted with the dough hook, combine the dry
 ingredients. Add the olive oil, milk, water, minced garlic, and Italian
-seasoning.[  ]{.Apple-converted-space}Mix until ingredients have formed
+seasoning.Mix until ingredients have formed
 a dough. Knead on low speed until the dough is smooth and elastic, about
 8 minutes. Transfer the dough to a lightly oiled bowl, turn once to
 coat, and cover with plastic wrap. Allow to rise for about 1 hour, or

@@ -6,7 +6,7 @@ title: Conchas
 ## Ingredients
 
 * 500 grams flour, plus extra for dusting
-* 125 grams[  ]{.Apple-converted-space}sugar
+* 125 gramssugar
 * 7 1/2 grams dry active yeast
 * 3 grams salt
 * 100 grams unsalted butter, room temperature

@@ -23,9 +23,8 @@ title: Char Siu Pork
 ## Directions
 
 Add all ingredients in the char siu sauce in a sauce pan, heat it up and
-stir-well until all blended and become slightly thickened and sticky.[ 
-]{.Apple-converted-space}(It will yield 1/2 cup char siu sauce.)
-Transfer out and let cool.
+stir-well until all blended and become slightly thickened and sticky. (It will
+yield 1/2 cup char siu sauce.) Transfer out and let cool.
 
 Marinate the pork butt pieces with 2/3 of the char siu sauce and the
 chopped garlic overnight. Add 1 1/2 Tablespoons cooking oil into the

@@ -19,4 +19,4 @@ Put the Gorgonzola in a small mixing bowl and mash it with a fork. Add
 the sour cream, buttermilk, mayonnaise, white wine vinegar,
 Worcestershire sauce and black pepper and whisk to combine. Serve or
 store in an airtight container, in the refrigerator, for up to 1
-week.[ ]{.Apple-converted-space}
+week.

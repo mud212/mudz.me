@@ -26,7 +26,7 @@ the pecans in the butter for 4-5 minutes and set aside to cool.
 Melt the remaining butter in a skillet over medium-low heat until golden
 brown. Remove from the heat and pour into a a heat-proof bowl. Add in
 the sugar, brown sugar, and vanilla, and mix well. Beat in the eggs one
-at a time until[  ]{.Apple-converted-space}just combined.
+at a time untiljust combined.
 
 In a large bowl, combine the flour, corn starch, salt, cinnamon, and
 baking soda. Gradually fold into the butter mixture until just combined.
