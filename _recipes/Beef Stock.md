@@ -17,7 +17,7 @@ title: Beef Stock
 * 12 whole peppercorns
 * 4 whole cloves
 
-## Ingredients
+## Directions
 
 Preheat oven to 400° F.
 
